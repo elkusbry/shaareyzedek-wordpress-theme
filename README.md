@@ -1,0 +1,1 @@
+# shaareyzedek-wordpress-theme
